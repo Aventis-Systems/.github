@@ -1,0 +1,3 @@
+# Aventis Systems
+
+Aventis Systems offers scalable business IT solutions for secure and efficient operations. Customers benefit from fast shipping on business computers, refurbished server parts, and networking equipment tailored to a wide range of IT needs. We are a trusted managed service provider delivering computer hardware, business IT hardware solutions, and end-to-end infrastructure consulting. Our team also provides cloud services, as well as network and security consulting, to keep systems protected. Experience the difference of reliable technology and personalized support. Let Aventis craft your next IT advantage today.
